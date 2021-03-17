@@ -17,3 +17,9 @@ shu***  -* -* *
 start http://**.*********************************************
 
 **** no
+
+Pronto saldra la version BETA!! 
+
+Si quieres unirte solo manda MD a mi instagram 
+
+jorge_elite_surviv112457
